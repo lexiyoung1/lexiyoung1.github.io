@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Hello! My name is Lexi Young and this is where I will post my Blog. I am a freshman, but with all of my credits from high school I am classified as a junior. I am very excited for this class because anything that has to do with cancer is very fascinating to me. 
